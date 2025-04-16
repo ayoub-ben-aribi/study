@@ -1,5 +1,0 @@
-# study
-
-## notes
-
-### nb
